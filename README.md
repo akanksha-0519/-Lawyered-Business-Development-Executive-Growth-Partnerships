@@ -1,5 +1,5 @@
-# -Lawyered-Business-Development-Executive-Growth-Partnerships
-## Handled partnerships with incubators and start-ups, lawyer onboarding, and client engagement through CRM tools.
+# -Lawyered
+## Business Development Executive - Growth Partnerships
 
 Role: Built a strong ecosystem of start-ups and lawyers by driving collaborations and awareness.
 
